@@ -1,5 +1,5 @@
 ### mdm loh,
-> she is our  **_## hero_** !
+> she is our  **_hero_** !
 she teaches us science and helps us in bad times
 she is kind and tells us stories
 so her classes are always so __interesting__
