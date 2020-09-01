@@ -12,4 +12,4 @@ instead she is glad to help us improve
 and making sure we eat well ( donuts )
 she is the __kindest__ person i have ever met
 thank you for all the jokes and helping me through struggles
-you are the **best** teacher ever !
+you are the **best** teacher ever !!
